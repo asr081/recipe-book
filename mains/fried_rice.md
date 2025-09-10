@@ -1,0 +1,47 @@
+#**Indian Fried rice (serves 2)**
+##*Ingredients:* 
+```
+- Basmati Rice (200 gms)
+- Cumin seeds (2 tea spoons)
+- Vegetable oil/ Olive is just fine too. 
+- Coriander seeds (2 tea spoons)
+- [Cloves](https://en.wikipedia.org/wiki/Clove) (3-5)
+- Garam Masala (2 tea spoons)
+- Red chilli powder ([Kashmiri Mirch](https://www.indiamart.com/proddetail/mdh-kashmiri-mirch-powder-22785581762.html) less hot but gives better color)
+- Raw eggs (3 medium)
+- Cardamom (big one, [black](https://krydra.no/produkt/svart-kardemomme-indisk-hel/)), green will work too. 
+- Onion (1 medium) (Sliced)
+- Garlic (4 big cloves, finely chopped)
+- Ginger (2 table spoon, small julienne slices
+- Dried red chilli or slit green chilli
+- Choice of vegetables (Peas, brocolli, paprika, squash, cauliflower, cabbage, carrot etc)
+- Coriander leaves (finely chopped) for garnishing
+- [Bay leaves] (https://en.wikipedia.org/wiki/Bay_leaf)
+- spring onion (diced) for garnishing
+- Mango powder (3/4th Table spoon)
+- Lemon X1 
+
+
+Optional: 
+- Asafoetida powder.
+- [Star anise](https://krydra.no/produkt/stjerneanis-hel-okologisk/) (1 flower)
+- Turmeric (1 tea spoon)
+- coriander seeds
+- mustard seeds
+
+```
+
+- [ ] Take a pan fill up the water, put some pre soaked rice to boil, preferably Basmati. 
+- [ ] Rinse the rice, washed the cooked rice with cold water if your rice is overcooked. This will it help stop cooking.
+- [ ] While the rice was boiling, you can do other prep work like chopping onions, vegetables, garnishes etc. 
+- [ ] Take a wok, or a frying pan. I like iron wok. 
+- [ ] Heat up on high heat, add oil (~4 table spoons)
+- [ ] When the oil is heated up add Asafoetida*, Cumin seeds, coriander seeds*, mustard seeds*, cloves, cardamom [1 Big black| 4 green ones] and [dried red chilli | green chilli slitted], star anise*, Bay leaves. 
+- [ ] within 30 seconds of step 6 add ginger, garlic, onion and saute. This is time when you turn the heat medium
+- [ ] As the onion turns pink add your vegetables or separately fried meat along and break the eggs on them. (Or just keep it vegetarian)
+- [ ] Add the rest of spices Garam masala, Cumin powder, red chilli powder. Saute along ! 
+- [ ] Cover to cook your veggies , but not too much. 
+- [ ] Add the rice which you cooked , mix it lightly avoid breaking rice while mixing. 
+- [ ] Fried rice are ready, serve it hot with garnishing. 
+- [ ] Serve with any curry, chutney, or natural yoghurt. 
+- [ ] Feel free to send improvisations. 
